@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pedri-08
+- 👋 Hola, I’m @Pedri-08 
 
 - 👀 I’m interested in being codential 
  
